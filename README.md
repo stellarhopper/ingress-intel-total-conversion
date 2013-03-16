@@ -17,3 +17,10 @@ Regards,
 
 Lenette 
 ~~~~~~
+
+
+I just found out they have an official forum. I guess posting there is
+better than contacting them via mail. Even if you don’t agree with Niantic
+# BE NICE
+and don’t spam. Here’s the link to the thread: 
+https://groups.google.com/forum/#!category-topic/ingress-discuss/give-feedback--suggestions/VWW9i328cP8
